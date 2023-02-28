@@ -1,5 +1,4 @@
-### Hi there 👋
-### I want to become a Hokage
+### I want to become a Hokage and become to main villain
 
 <!--
 **Daffa040403/Daffa040403** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
